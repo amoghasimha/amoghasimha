@@ -1,4 +1,4 @@
-
+ನಮಸ್ಕಾರ
 
 ![robot](https://github.com/amoghasimha/amoghasimha/assets/154357739/1e484b65-6e60-4497-9127-8524834e8ad4)
 
